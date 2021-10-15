@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @blockbuilder97
-- 👀 I’m interested in hiring engineers and developers looking to create in layer 2. 
-- 🌱 I’m currently learning the in's and out's of layer 2.
-- 💞️ I’m looking to collaborate on every and all things interesting.
+- 👋 Hi, I’m Geoff 
+- 👀 I’m interested in hearing your plans and aspirations.
+- 🌱 I’m currently connecting egineers to layer 2 startups.
+- 💞️ I’m looking to build realtionships with those interested.
 - 📫 How to reach me blockbuilder97@gmail.com 
 
 <!---
