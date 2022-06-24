@@ -1,6 +1,6 @@
 ###  👋 Hi, I’m Geoff Horwitz 
 
-When I'm not emailing you about a new job, I'm reading through project docmentation looking for the next big thing, attending the lastest ETH conference, yield farming, or getting buckets.
+Co-Foudner of Layer2 Talent 
 
 - I'm looking to collaborate on anything in the Polkadot or Ethereum Ecosystem 
 - Global, decentralized, recruitment and advisory. Specializing in Blockchain/Crypto/Web3
