@@ -1,6 +1,6 @@
 ###  👋 Hi, I’m Geoff Horwitz 
 
-Co-Foudner of Layer2 Talent 
+Co-Founder of Layer2 Talent 
 
 - I'm looking to collaborate on anything in the Polkadot or Ethereum Ecosystem 
 - Global, decentralized, recruitment and advisory. Specializing in Blockchain/Crypto/Web3
