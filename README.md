@@ -2,7 +2,7 @@
 
 Co-Founder of Layer2 Talent 
 
-- I'm looking to collaborate on anything in the zk or Ethereum Ecosystem 
+- I'm open to collaborating on anything involving ETH and zk 
 - Global, decentralized, recruitment and advisory. Specializing in Blockchain/Crypto/Web3
 - Ask me about what roles I'm hiring for or for help buildning your team.
 
