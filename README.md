@@ -1,4 +1,4 @@
-###  👋 My name is Geoff. 
+###  👋 My name is Geoff ;)
 
 Co-Founder of Layer2 Talent 
 
