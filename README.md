@@ -1,10 +1,9 @@
 ###  👋 My name is Geoff ;)
 
-Co-Founder of Layer2 Talent 
+Co-Founder of Layer2 Talent: Director of Technical Recrutiment
 
-- I'm open to collaborating on anything involving ETH and zk 
-- Global, decentralized, recruitment and advisory. Specializing in Solidity, Rust, and zk recruitment. 
-- Ask me about what roles I'm hiring for or for help buildning your team.
+- To foudners...I'm here to make your technical hiring initiative go burrrr. 
+- To engineers... I will find you and we will talk about crypto.
 
 How to reach me .....
 
