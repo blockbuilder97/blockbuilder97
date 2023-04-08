@@ -1,8 +1,8 @@
-###  👋 My name is Geoff ;)
+###  👋 Hi I'm geoffhorwitz.eth 
 
-Co-Founder of Layer2 Talent:    Director of Technical Recrutiment
+Co-Founder of Layer2 Talent:    Director of Technical Hiring
 
-- Founders...I built a hiring protcol to make your technical hiring initiative go burrrr. 
+- Founders...I've built a hiring protcol to make your technical hiring initiative go burrrr. 
 - Engineers... I will find you and we will talk about crypto.
 
 How to reach me .....
