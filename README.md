@@ -2,8 +2,8 @@
 
 Co-Founder of Layer2 Talent: Director of Technical Recrutiment
 
-- To foudners...I'm here to make your technical hiring initiative go burrrr. 
-- To engineers... I will find you and we will talk about crypto.
+- Founders...I built a hiring protcol to make your technical hiring initiative go burrrr. 
+- Engineers... I will find you and we will talk about crypto.
 
 How to reach me .....
 
