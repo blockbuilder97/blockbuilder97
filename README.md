@@ -1,9 +1,8 @@
 ###  👋 Hi I'm geoffhorwitz.eth 
 
-Co-Founder of Layer2 Talent:    Director of Technical Hiring
+Co-Founder of Layer2 Talent: Technical Recruiter 
 
-- Founders...I've built a hiring protcol to make your technical hiring initiative go burrrr. 
-- Engineers... I will find you and we will talk about crypto.
+Doing everythig to help Ethereum obliberate the galaxy. 
 
 How to reach me .....
 
