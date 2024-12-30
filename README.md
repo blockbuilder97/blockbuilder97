@@ -2,7 +2,7 @@
 
 Recruting @Base and Co-Founder of Layer2 Talent
 
-If you're looking at this you might want to consider pinging me 
+If you made it this far you might want to consider pinging me 
 
 How to reach me:
 
