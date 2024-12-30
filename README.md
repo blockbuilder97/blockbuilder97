@@ -1,10 +1,10 @@
-###  👋 Hi I'm geoffhorwitz.eth 
+###  👋 Hi I'm Geoff Horwitz 
 
-Co-Founder of Layer2 Talent: Technical Recruiter 
+Recruting @Base and Co-Founder of Layer2 Talent
 
-Doing everythig to help Ethereum obliberate the galaxy. 
+If you're looking at this you might want to consider pinging me 
 
-How to reach me .....
+How to reach me:
 
 ### Links:
 - [LinkedIn](https://www.linkedin.com/in/geoffrey-horwitz-813033170/)
